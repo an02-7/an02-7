@@ -1,4 +1,4 @@
-# Hi, I'm Afnan Aref 👋
+# Hi, I'm Eng/Afnan Aref 👋
 ### Mechatronics Engineer | Robotics, Industrial Automation & Applied AI
 
 🎓 **B.Sc. in Mechatronics Engineering** — Saba University (GPA: 85% | Capstone & Industrial Training: 100/100)  
